@@ -1,0 +1,1 @@
+Hi! I'm Aethel Beorn, a Roblox animator experienced in both R6 and R15 rigs. I've dedicated a good part of my creativity and effort into mastering the art of animation within the Roblox platform, aiming to make every character move and tell a story in their own unique way.
